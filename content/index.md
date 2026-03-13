@@ -1,5 +1,5 @@
 ---
 title: index
 alias: index
-redirect: IdeaVerse/Inicio.md
+redirect: IdeiaVerse\Curso de Noivos\Introdução
 ---
