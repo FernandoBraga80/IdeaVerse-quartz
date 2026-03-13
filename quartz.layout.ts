@@ -38,7 +38,10 @@ export const defaultContentPageLayout: PageLayout = {
         { Component: Component.ReaderMode() },
       ],
     }),
-    Component.Explorer(),
+    Component.Explorer({
+      title: "Explorar Estudos",
+      folderClickBehavior: "collapse", // Melhora a navegação em pastas
+    }),
   ],
   right: [
     Component.Graph(),
