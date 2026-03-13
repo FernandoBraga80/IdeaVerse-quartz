@@ -1,0 +1,1 @@
+Êxodo 4.11-12: *"Respondeu-lhe o SENHOR: Quem fez a boca do homem? Ou quem faz o mudo, ou o surdo, ou o que vê, ou o cego? Não sou eu, o SENHOR? Vai, pois, agora, e eu serei com a tua boca e te ensinarei o que hás de falar."*

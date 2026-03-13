@@ -1,0 +1,1 @@
+Uma coisa é a paz de mundo. Aqueles que servem a Deus e se incomodam dizendo, "só quero paz" não entenderam ainda essa paz. 

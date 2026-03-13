@@ -1,0 +1,2 @@
+Fp 3.10:  *"para o conhecer, e o poder da sua ressurreição, e a comunhão dos seus sofrimentos, conformando-me com ele na sua morte;"*
+
