@@ -76,7 +76,7 @@ Observações:
 - Prioridades da vida - uso do tempo
 - Trabalho
 - Presença de Cristo no lar
-- Obras da carne e obras do Espírito
+- [[Obras da carne e obras do Espírito]]
 
 **Kit do discípulo novo (Fundamentos):**
 

@@ -12,32 +12,57 @@ Nesta lição vamos refletir refletir sobre o significado bíblico da família e
 
 Ao terminar essa lição você deve ser capaz de:
 
-1. Argumentar que a família não é uma instituição humana e sim uma criação de Deus.
+1. Defender biblicamente que a família não é uma instituição humana e sim uma criação de Deus.
 2. 
 
 ## 1. Quem criou a família?
 
 **Gênesis 1:26-28**: *"Também disse Deus: Façamos o homem à nossa imagem, conforme a nossa semelhança; tenha ele domínio sobre os peixes do mar, sobre as aves dos céus, sobre os animais domésticos, sobre toda a terra e sobre todos os répteis que rastejam pela terra. Criou Deus, pois, o homem à sua imagem, à imagem de Deus o criou; homem e mulher os criou. E Deus os abençoou e lhes disse: Sede fecundos, multiplicai-vos, enchei a terra e sujeitai-a; dominai sobre os peixes do mar, sobre as aves dos céus e sobre todo animal que rasteja pela terra."* 
 
-Vamos começar essa lição com uma afirmação essencial: **"a família é a primeira instituição divina criada"**. A criação da família, conforme a bíblia, remonta ao exato momento da criação do homem, como pode ser observado em Genesis 1.26-28. Por que podemos fazer essa afirmação? Vamos destrinchar os versículos 27 e 28 para compreender isso com clareza:
+Vamos começar essa lição com uma afirmação essencial: **a família é um projeto de Deus!** Alguns podem querer argumentar que a família é simplesmente uma forma de organização social criada por alguma civilização e que, por isso, precisa evoluir com o tempo e com as necessidades de cada sociedade. Essa não é a verdade revelada pela Palavra de Deus. Segundo as escrituras, a primeira família da Terra surgiu assim que homem e mulher foram criados. 
 
-### 1º) Deus criou o homem e a mulher a sua imagem
+Por que podemos fazer essa afirmação? Vamos fazer uma leitura cuidadosa de Genesis 1.26-28 para compreender melhor esse ponto:
 
-E aqui é necessário recorrer ao hebraico para não ter problema de interpretação. No primeiro trecho do v.27 (*"Criou Deus, pois, o <u>homem</u> à sua imagem..."*), aqui a expressão "homem" é *aw-dawn* (Adão) que é o nome do primeiro homem, mas também, como usado aqui, significa humanidade ou **espécie humana**. No segundo trecho (*"<u>homem</u> e mulher os criou."*) a palavra traduzida como homem é outra, *"zakar"*, que significa "macho". Com essa diferenciação de termos, uma forma possível de traduzir seria: *"Criou Deus, pois, a espécie humana a sua imagem,(...) macho e fêmea os criou"*. 
+1º) *"Também disse Deus: Façamos o homem à nossa imagem, conforme a nossa semelhança; tenha ele domínio sobre os peixes do mar, sobre as aves dos céus, sobre os animais domésticos, sobre toda a terra e sobre todos os répteis que rastejam pela terra."
 
-Nos versículos 26 e 27, portanto, está estabelecido o Propósito Eterno de Deus, qual seja, a multiplicação da sua imagem através da espécie humana. Toda a criação reflete a gloria de Deus e seu eterno poder (Rm 1.20), mas a espécie humana foi dotada de algo há mais: a imagem do criador! A outra informação essencial do versículo 27 é que a humanidade foi criada em dois gêneros: macho e fêmea. Ambos receberam da imagem do Criador, tiveram seus corpos físicos originados de átomos (pó da terra) e tornaram-se almas viventes a partir do sopro divino (Gn 2.7).
+Esse primeiro trecho é o fechamento do ato de criação descrito ao longo do primeiro capítulo de Gênesis. O texto bíblico comunica algo muito precioso: Deus criou o mundo com um Propósito! Nos versículos anteriores podemos vislumbrar Deus preenchendo o vazio nos céus e terra com a sua palavra criadora. Já no versículo 26 entendemos que a criação tem uma finalidade, que é **manifestar a Glória de Deus**. E essa Glória seria revelada através da humanidade, que foi feita a imagem do Criador. A ideia de "dignidade humana", assim, só tem sentido se reconhecemos que nossa espécie recebeu algo de especial do Criador e, portanto, não é igual a um pedaço de rocha, ou a um inseto. Recebemos a imagem de Deus e fomos designados para reinar com Ele sobre a terra, tendo o domínio de toda a criação, exercendo esse domínio para espalhar a beleza e a justiça de Deus sobre toda a Terra. Que alegria e conforto saber que não somos acidentes de um processo evolutivo cego, mas fomos criados com um Propósito.     
 
-### 2º) Deus abençoou a união entre homem e mulher
+2º) *"Criou Deus, pois, o homem à sua imagem, à imagem de Deus o criou; homem e mulher os criou."*
 
-Reflita com calma sobre esse primeiro trecho do versículo 28: *"E Deus os abençoou"*. Lembre-se que o trecho aqui está se referindo a uma dupla específica de seres humanos: Adão e Eva (homem e mulher). Aqui Deus celebra o primeiro casamento! Aos que estão se preparando para o casamento, é necessário ler com muita reverência esse texto. Deus criou, uniu e abençoou. Essa deve ser a firme convicção dos que se casam e, por isso, deve-se dar mais ênfase a verdade de que aquilo que Deus uniu, o homem não deve separar - assunto de outras lições.
+Há um detalhe curioso nesse trecho que merece ser destacado. No versículo 27 podemos ver que a palavra "homem" aparece duas vezes. No primeiro trecho (*"Criou Deus, pois, o <u>homem</u> à sua imagem..."*) a expressão "homem" é *"aw-dawm"* (אדמּ). Essa palavra é usada como o nome do primeiro homem, Adão. Mas também é usada, como é o caso aqui, para se referir a humanidade como um todo. Já no segundo trecho (*"<u>homem</u> e mulher os criou."*) a palavra traduzida como homem é outra, *"zakar"* (זכר), que significa "macho". Sabendo disso, uma forma possível de traduzir seria: *"Criou Deus, pois, a espécie humana a sua imagem,(...) macho e fêmea os criou"*. 
 
-Em Gênesis 2 o relato da criação do homem e da mulher é apresentado de forma mais detalhada, revelando que primeiro foi criado o homem, que foi colocado em um Jardim plantado por Deus (Gn 2.7-8). A mulher, por sua vez, foi criada depois, a partir da costela do homem (Gn 2.21-23). Porque será que Deus fez as coisas assim? Certamente, uma parte da resposta está no versículo 24: *"Por isso, deixa o homem pai e mãe e se une à sua mulher, tornando-se os dois uma só carne."*. Deus criou Eva a partir da carne de Adão para estabelecer um princípio universal: ainda cada um carregue o material genético dos seus pais, quando um homem e uma mulher se juntam, pela fé, os dois tornam-se uma só carne. Essa é a vontade de Deus! O texto de Gn 2.24, repetido em vários CERIMÔNIAS DE casamentos, reflete um princípio estabelecido desde a criação, que torna sagrada e definitiva a união entre homem e mulher, preparando o ambiente social para a geração dos filhos.
+Em Gênesis 2 o relato da criação do homem e da mulher é apresentado de forma mais detalhada, revelando que primeiro foi criado o homem, que foi colocado em um Jardim plantado por Deus (Gn 2.7-8). A mulher, por sua vez, foi criada depois, a partir da costela do homem (Gn 2.21-23). Porque será que Deus fez as coisas assim? Vamos descobrir analisando o versículo 24: *"Por isso, deixa o homem pai e mãe e se une à sua mulher, tornando-se os dois uma só carne."*. 
 
-### 3º) Deus ordena a multiplicação 
+Porque esse texto é tão importante? Jesus que utilizou Gn 2.24 para falar aos fariseus sobre indissolubilidade do casamento. Ao fazer homem e mulher uma só carne, o próprio Deus uniu homem e mulher enquanto eles estiverem vivos (Mt 19.3-6). Em Ef 5.32 Paulo também menciona Genesis para ensinar que marido e mulher estão vinculados pela carne e que amar a esposa é amar a si mesmo. Na carta aos Coríntios Paulo repreende aqueles que praticam a imoralidade sexual e alerta que o ato sexual promove essa união na carne e, exatamente por isso, é pecaminosa a união sexual fora do casamento.
 
-Depois de abençoar o casal, Deus então estabelece a finalidade desta união: *"Sede fecundos, multiplicai-vos, enchei a terra"*. Os filhos, assim, completam a estrutura da família, que se estabelece como o meio pelo qual a vida de Deus vai encher essa Terra! Por isso é necessário entender que a família não tem um fim em si mesmo, mas foi criada para transbordar a Glória de Deus por meio da multiplicação da Sua imagem. Deus capacitou homens e mulheres com sua benção e com a fecundidade para que a Terra fosse cheia da Sua presença através de uma raça humana criada a Sua imagem e semelhança. 
+Que verdade maravilhosa! A humanidade foi criada a imagem de Deus e estabelecida como regente de uma criação que iria refletir a Sua Glória. Mais do que isso, Deus decidiu fazer a mulher diretamente dos ossos e carne do homem (Gn 2.23), estabelecendo um vínculo permanente de compromisso e fidelidade entre aqueles que se uniram. E é exatamente nessa união firme e duradoura que se estabelece o ambiente ideal para criação dos filhos.  
 
-E o pecado não acabou com esse plano de Deus? De forma alguma! Sabemos que em Cristo Jesus Deus vai cumprir plenamente o seu Propósito estabelecido em Gênesis 1.26-28, pois ele faz novas todas as coisas (Ap 21.5). Embora a rebeldia humana tenha distorcido o mandato da multiplicação, fazendo com que Adão gerasse um filho a sua imagem (Gn 3.5), Deus lançou as bases da restauração do seu Propósito em toda a história. Em Abraão, o mandato da multiplicação reveste-se também de um significado redentor. Em Gênesis 12.1-3 Deus abençoa Abraão para começar começar uma nova linhagem pela qual seriam abençoadas todas as famílias da Terra. Quando Jesus nos ordena fazer discípulos de todas as nações  (Mt 28.18-20) mais uma vez renova-se o mandato da multiplicação da vida de Deus, a Igreja é a manifestação presente da Nova Criação. Em Apocalipse 21 e 22 a visão profética de João da Nova Jerusalém nos dá um vislumbre do trono de Deus, do qual sai o rio da água da vida e a árvore da vida. O Éden será reestabelecido e os remidos pelo sangue do cordeiro, transformados pela ressureição, reinarão eternamente com Deus!
+3º) *"E Deus os abençoou e lhes disse: Sede fecundos, multiplicai-vos, enchei a terra e sujeitai-a..."*
+
+Reflita com calma sobre esse trecho. Aqui Deus celebra o primeiro casamento! Mais uma vez é necessário insistir na natureza divina da família. Família existe com propósito, não é apenas um imperativo biológico para a satisfação dos nossos desejos. A união entre homem e mulher como uma só carne ganha um significado ainda mais profundo porque essa união gera uma nova vida. E esse é o Propósito original do casamento: a multiplicação da vida de Deus. Que missão gloriosa a humanidade recebeu. Deus nos criou para edificar um reino de paz, alegria e justiça, povoando a terra com filhos a Sua imagem e semelhança. 
+
+4º) *"...dominai sobre os peixes do mar, sobre as aves dos céus e sobre todo animal que rasteja pela terra."*
+
+Finalmente, a benção da multiplicação associa-se ao mandato de exercer domínio sobre a criação. O homem não é dono da criação, mas foi chamado para dominá-la com sua capacidade criativa e a habilidade física, para que a criação continue a refletir a Glória de Deus. As famílias, então,   
+
+
+Sabemos, contudo, que a transgressão de Adão gerou condenação e morte, pervertendo o Propósito de Deus. Cabe então compreender sobre como as famílias foram afetadas pelo pecado e como elas ainda podem cooperar com o Propósito Eterno de Deus.  
+## 2. Como o pecado afetou as famílias? 
+
+Sobre a corrupção da natureza humana, Paulo afirma: *"Todos se extraviaram e juntamente se fizeram inúteis"* (Rm 3.12). De fato, Genesis 5.3 mostra o nível profundo em que o pecado corrompeu a raça humana, pois Adão *"e gerou um filho à sua semelhança, conforme a sua imagem"*. Incapazes de refletir por natureza a Glória de Deus e rejeitando a Deus e o seu conhecimento, Deus entregou os homens a sua imundícia e as suas paixões infames, pervertendo a ordem criada. Sobre isso, o texto de Romanos 1.18-32 descreve como a humanidade mergulhou em um caos de idolatria e depravação moral, incluindo a depravação da união natural entre homens e mulheres.
+
+Ainda que, por natureza, todos somos inúteis, guardamos viva esperança na convicção de que Deus não desistiu do seu Propósito por causa do pecado. De fato, em toda a história da humanidade, Deus lançou as bases da restauração da sua vontade. Com Abraão, o mandato da multiplicação reveste-se também de um significado redentor. Em Gênesis 12.1-3 descobrimos que Deus abençoa o patriarca de Israel para começar começar uma nova linhagem pela qual seriam abençoadas todas as famílias da Terra. A nação de Israel e a Lei de Moises cumpriu o papel de guardião da verdade de Deus, conduzindo a humanidade até Cristo (Cl 3.23-24). 
+
+Quando Jesus nos ordena fazer discípulos de todas as nações  (Mt 28.18-20) mais uma vez renova-se o mandato da multiplicação da vida de Deus. A Igreja, guardando o ensino de Jesus e perseverando na Doutrina dos Apóstolos manifesta no tempo presente os sinais da Nova Criação de Deus. Em Romanos 8.28-29 compreendemos que Deus reafirma o seu propósito original, e renova o desejo de uma grande família com a humanidade, tendo Jesus como o primogênito e modelo de vida e caráter a ser copiado.
+
+Ainda no livro de Romanos, o apostolo nos lembra que ainda que o pecado de Adão tenha pervertido toda a humanidade, a morte redentora de Jesus dá aqueles que receberam a nova vida a abundância de graça e o dom da justiça para, por meio de Jesus Cristo, reinar em vida. Gloria a Deus, pois onde abundou o pecado a graça será superabundante (Rm 5.12-21). **CONTINUAR AQUI**
+
+
+Rm 3.12 e 23 indicam como a humanidade perdeu essa glória, essa vida perfeita e se entregaram a disposições carnais reprováveis, rejeitando a Deus, o que se refletiu na forma como homem e mulher se associavam ou mesmo como as pessoas passaram a constituir a sua identidade e a sua sexualidade.
+
+Rm 5.17-18 - Recebemos a abundância da graça e da Justiça por meio de Jesus Cristo e, como Ele, por Ele e para Ele, podemos restaurar as nossas vidas e, por consequência, as nossas famílias, retomando ao Padrão de Deus.
+
+é a manifestação presente da Nova Criação. Em Apocalipse 21 e 22 a visão profética de João da Nova Jerusalém nos dá um vislumbre do trono de Deus, do qual sai o rio da água da vida e a árvore da vida. O Éden será reestabelecido e os remidos pelo sangue do cordeiro, transformados pela ressureição, reinarão eternamente com Deus!
 
 ### 4º) Deus delegou ao homem domínio sobre a Terra
 
@@ -69,11 +94,7 @@ A falta de conhecimento sobre o objetivo de Deus ao criar a família coloca as p
 
 Então para quê existe a família? Por que Deus resolveu organizar as coisas dessa forma?
 
-Em Rm 8.28-29 Deus reafirma o seu propósito original, de antes do Pecado e usa de forma explicita o seu desejo de formar uma família com a humanidade, tendo Jesus como o primogênito e modelo de vida e caráter a ser copiado.
 
-Rm 3.12 e 23 indicam como a humanidade perdeu essa glória, essa vida perfeita e se entregaram a disposições carnais reprováveis, rejeitando a Deus, o que se refletiu na forma como homem e mulher se associavam ou mesmo como as pessoas passaram a constituir a sua identidade e a sua sexualidade.
-
-Rm 5.17-18 - Recebemos a abundância da graça e da Justiça por meio de Jesus Cristo e, como Ele, por Ele e para Ele, podemos restaurar as nossas vidas e, por consequência, as nossas famílias, retomando ao Padrão de Deus.
 
 Quem se casa deve ter clareza de que o faz para cumprir essa Missão, qual seja, reproduzir a vida de Deus, conduzindo cada um dos seus membros a ser formado a imagem e semelhança de Jesus.
 

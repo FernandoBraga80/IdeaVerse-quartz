@@ -1,5 +1,1 @@
----
-title: index
-alias: index
-redirect: IdeiaVerse\Curso de Noivos\Introdução
----
+![[IdeaVerse/Curso de Noivos/Introdução]]

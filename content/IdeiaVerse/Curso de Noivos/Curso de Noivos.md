@@ -1,5 +1,5 @@
 ---
-published: "false"
+published: "true"
 tags:
   - Noivos
 Date: 2026-03-12
@@ -41,7 +41,6 @@ Casais de discípulos noivos vinculados à Igreja em Belo Horizonte com juntas e
 [[Lição 2 - Família e o Propósito Eterno de Deus]]: Levar os participantes a refletir sobre o significado bíblico de família e seu papel na sociedade.
 
 [[Lição 3 - O que é casamento]]: Levar os participantes a conferir suas motivações pessoais para se casar à luz do padrão bíblico para o casamento: aliança, indissolubilidade e multiplicação.
-
 ### Unidade 2: Construindo um Casamento Saudável
 
 Lição 4: Comunicação entre o casal: Refletir sobre princípios básicos da comunicação verbal e não verbal e sua aplicação na relação conjugal.

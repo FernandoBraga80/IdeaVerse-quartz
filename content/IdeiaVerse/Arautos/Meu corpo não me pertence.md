@@ -10,7 +10,9 @@ A descoberta mais importante aqui é reconhecer que nossos corpos sequer nos per
 
 ## 1. Por que isso é importante?
 
-Antes de fazer uma abordagem bíblica sobre os nossos corpos, vejamos algumas das ideias contemporâneas que são a base de frases do tipo _"meu corpo, minhas regras"_. Essa frase ganhou popularidade nos movimentos sociais da década de 1960, inicialmente vinculada a segunda onda do feminismo e a defesa do uso livre de contraceptivos. O anticoncepcional "liberta" o corpo da mulher pois ela pode ter vida sexual ativa sem ter filhos, no fim, é também  
+Antes de fazer uma abordagem bíblica sobre os nossos corpos, vejamos algumas das ideias contemporâneas que são a base de frases do tipo _"meu corpo, minhas regras"_. Essa frase ganhou popularidade nos movimentos sociais da década de 1960, inicialmente vinculada a segunda onda do feminismo e a defesa do uso livre de contraceptivos. 
+
+Ao "libertar" o corpo da mulher, desassociando o prazer da maternidade, o uso disseminado do anticoncepcional em todo o mundo acelerou a multiplicação da iniquidade (Mt 24.12). Seu uso facilitou às mulheres igualar-se aos homens, vivendo uma vida de promiscuidade sexual sem a preocupação em engravidar, diminuiu o valor social da maternidade, relativizou o significado dos filhos nas famílias, acelerou os divórcios, entre outros efeitos pecaminosos. O anticoncepcional é apenas um remédio, um instrumento que não é bom ou mal em si mesmo. É a pecaminosidade da humanidade que usa tudo o que está disponível para afundar homens e mulheres ainda mais em sua iniquidade.    
 
 Com o tempo, essa mesma frase também passou a justificar:
 
@@ -20,6 +22,7 @@ Com o tempo, essa mesma frase também passou a justificar:
 - A exposição dos corpos em sensualidade, como manifestação da autonomia das pessoas.
 - A banalização da pornografia.
 - A liberdade para fazer outro corpo, caso a pessoa entenda que a identidade dela não combina com o corpo em que nasceu.
+- O aborto ao dizer que a decisão sobre interromper a gravidez é uma questão de autonomia do corpo da mulher.
 
 Considere, portanto, essas questões:
 
@@ -152,15 +155,13 @@ Deus planejou nossos corpos em cada detalhe, fez corpo, alma e espírito em uma 
 
 1. Você já sentiu que o estado do seu corpo (cansaço, falta de sono, má alimentação) atrapalhou sua comunhão com Deus? O que o texto de 1Ts 5:22-23 nos ensina sobre isso?
 
-2. Se um amigo olhasse para a forma como você trata o seu corpo e o corpo dos outros, ele conseguiria ver que você acredita que o seu corpo é uma "obra de arte" de Deus? O que você poderia mudar na sua rotina para que o seu corpo "anunciasse" mais a glória de Deus?
+2. Se um amigo olhasse para a forma como você trata o seu corpo e o corpo dos outros, ele conseguiria ver que você acredita que o seu corpo é uma obra de Deus? O que você poderia mudar na sua rotina para que o seu corpo "anunciasse" mais a glória de Deus?
 
-3. Leia novamente 1 Pe 1:18,19 e reflita sobre como isso deve influenciar a forma como você decide o que fazer com seu corpo hoje.
+3. Leia novamente 1 Pe 1:18,19 e reflita sobre como esse texto deve influenciar a forma como você decide o que fazer com seu corpo hoje.
 
 4. Que relação podemos fazer entre o fato de que somos "Santuário do Espirito Santo" e o texto de 1 Coríntios 10:31?
 
-5. Se os seus braços, pernas e olhos são "membros de Cristo", como essa ideia te ajuda a pensar duas vezes antes de usar seu corpo para algo que você sabe que não é legal?
-
-6. Como a esperança da ressurreição (saber que seu corpo terá um futuro eterno com Deus te ajuda a educar corpo, alma e espírito (Tt 2:2-14) e prepara-los para a vida eterna?
+5. Como a esperança da ressurreição (saber que seu corpo terá um futuro eterno com Deus te ajuda a educar corpo, alma e espírito (Tt 2:2-14) e prepara-los para a vida eterna?
 
 #arautos
 
